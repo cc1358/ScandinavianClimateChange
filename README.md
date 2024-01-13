@@ -1,2 +1,2 @@
 # ScandinavianClimateChange
-We present a comprehensive analysis of how Carbon Taxes have affected Scandinavian countries and discuss routes for larger economies to implement the same procedures
+WE PRESENT A COMPREHENSIVE ANALYSIS OF HOW CARBON TAXES HAVE AFFECTED SCANDINAVIAN COUNTRIES AND DISCUSS ROUTES FOR LARGER ECONOMIES TO IMPLEMENT THE SAME PROCEDURES
